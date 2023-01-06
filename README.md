@@ -1,1 +1,1 @@
-ну типо... хз
+scripts for some things /shrug
